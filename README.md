@@ -19,3 +19,27 @@
 <img width="591" height="1280" alt="image" src="https://github.com/user-attachments/assets/c2b548a4-7da6-4ffa-8461-5f7648b4aac3" />
 <img width="591" height="1280" alt="image" src="https://github.com/user-attachments/assets/03fcd1d0-1915-4981-a7f7-410b3dcb2e49" />
 <img width="591" height="1280" alt="image" src="https://github.com/user-attachments/assets/d17be15f-c77d-43ba-82d6-9c9a4b5842ee" />
+
+👍👍👍专注各类盘口搭建，源码二开，技术维护，服务至上，只做精品 ！！👍👍👍
+
+🔴🟢搭建：巴西PG、电报小游戏、秒u盗u、划油系统(免授全提示不爆红)，跨境商城系统(多语言多货币商家入驻功能完善)、多语言交易所(功能完善控杀齐全)、微交易、合约盘、秒合约、资金盘、裂变盘、理财盘、nft、dapp授权、质押挖矿、最新商城、点赞、刷单、股票、期货、外汇、盗币等等！！接定制开发！！🌈
+
+专做大区园区盘口，可定制开发，全链包网！
+
+24h售后无忧，还可提供运营案例话术为老板保驾护航
+
+欢迎老板咨询：😅😅
+@bb929
+@jc999
+@jz3333
+@jz5555
+@td6666
+@tk567
+双向机器人  @jcvip_bot  
+ （私聊受限，点击进入）
+
+😅😅频道（演示站）
+https://t.me/huayu929
+
+😅😅官方网站（演示站）
+https://td2600.com
